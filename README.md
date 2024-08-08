@@ -1,1 +1,0 @@
-# personalizacion-marketing-cloud
